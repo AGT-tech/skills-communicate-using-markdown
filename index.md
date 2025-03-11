@@ -2,6 +2,7 @@
 
 ### How about this 
 
+![Camels eating and traveling on a path](https://hakaimagazine.com/wp-content/uploads/field-tree-coastal-camels.jpg)
 
 
 
